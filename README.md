@@ -1,16 +1,22 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**asteroid2earth/asteroid2earth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# 🪐 astrochanxhole `· ♡ ` 🪐 ^^
+### Starlightt `· ˚ 🌙`
+`asteroid2earth · they/them`
 
-Here are some ideas to get you started:
+<img src="https://giphy.com" width="150"/>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```text
+💬 | ` " Sleeping. . . " - 🌑 · / @astroloverchan `_ |
+```
+
+> ` 🌑 · 💬 。"Dreams is too magnanimous for a world this cruel. Go back to sleep." Fictknn ` °iwc/dniud | ..💤 New acc `°followgit,
+
+<br/>
+
+🔗 [Check sp `° 💤 ... ✧ ` WIP](https://github.com) &nbsp;|&nbsp; 🔗 [My StrawPage](https://straw.page)
+
+---
+🌌 *Welcome to my quiet corner of space.* 🌌
+</div>
+
