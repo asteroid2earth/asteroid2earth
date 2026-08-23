@@ -4,8 +4,7 @@
 ### Starlightt `· ˚ 🌙`
 `asteroid2earth · they/them`
 
-<img src="https://giphy.com" width="150"/>
-
+![Astro Moon Toon](https://tenor.com)
 ```text
 💬 | ` " Sleeping. . . " - 🌑 · / @astroloverchan `_ |
 ```
