@@ -5,7 +5,7 @@
 `asteroid2earth · they/them`
 
 ![Astro Moon Toon](https://tenor.com)
-```text
+
 💬 | ` " Sleeping. . . " - 🌑 · / @astroloverchan `_ |
 ```
 
