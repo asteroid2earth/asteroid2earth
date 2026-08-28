@@ -1,4 +1,4 @@
-infos about me. ` °
+sys infos about me. ` °
 
 
 Pronouns - He/them, 🌘 `
