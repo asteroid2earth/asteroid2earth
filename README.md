@@ -1,22 +1,26 @@
+# Welcome to my Space!
+
 <div align="center">
-
-# 🪐 astrochanxhole ` ∙ ♡ ∙ ` 🪐 ^^
-### Starlightt ` ∙ ˚ 🌙 `
-`asteroid2earth · they/them`
-
-![Astro Moon Toon](https://tenor.com)
-
-💬 | ` " Sleeping. . . " - 🌑 ∙ / @astroloverchan `_ |
-
-> 🌑 ∙ 💬 ｡ "Dreams is too magnanimous for a world this cruel. Go back to sleep." Fictknn ˚iwc/dniud | ..💤 New acc `°followgit,
-
-<br/>
-
-🔗 [Check sp ˚ 💤 ... ✧ ` WIP](https://github.com) &nbsp;|&nbsp; 🔗 [My StrawPage](https://straw.page)
+  <img src="astro-astro-dandys-world-ezgif.com-video-to-gif-converter.gif" width="220" alt="Astro Fictional Husband" />
+  <h3>"I My Fictional Husband"</h3>
+  <p>Astro Fictkin Profile Workspace | Space Lover | Cozy Aesthetics</p>
+</div>
 
 ---
-🌌 *Welcome to my quiet corner of space.* 🌌
+
+### About Me
+```text
+  Name: Astro/Zionx
+  Pronouns: They / Them / Sleepy
+  Vibe: Permanently resting under a cornflower blue blanket.
+```
+
+---
+
+<div align="center">
+  <img src="https://komarev.com" />
 </div>
+
 
 
 
