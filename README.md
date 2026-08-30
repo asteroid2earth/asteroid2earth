@@ -1,19 +1,13 @@
-sys infos about me. ` °
+some infos-
 
 
-Pronouns - He/them, 🌘 `
-
-Sleeping is underrated, 💤
-honestly, my opinion,
+my gender is physically transgender, /non-binary-boy, 🏳️‍⚧️,!
 
 
-
+I do like sleeping though, but I'm s cry baby, and I love nature!꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ ` 🍀,🍎... `
 
 
 
-
-I would post a gif here but really lazy, ` 🕯️📎,
- 
-
-
+I'll change this soon, so read it! 
+🌿🦋, ! (⁠≧⁠▽⁠≦⁠)
 
